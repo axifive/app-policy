@@ -6,4 +6,4 @@ We are not interested in collecting any personal information. We believe such in
 We does not collect any personal information or connect to the internet.
 
 #### Contact
-If you have any questions or concerns, please feel free to [contact](axifnx@gmail.com).
+If you have any questions or concerns, please feel free to contact: axifnx@gmail.com
